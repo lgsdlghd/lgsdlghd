@@ -1,16 +1,23 @@
-## Hi there 👋
+### <a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→-观-看-入-口←←</a>
 
-<!--
-**lgsdlghd/lgsdlghd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+这里🅼5🆃7·🅲🅲让你下不了～床
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+齐霜安静下来，他用眼神求饶：你别捂着我，我们好好说。
+
+小少爷有一双会说话的眼睛，很动人。
+
+茭白将捂着他嘴的手撤开一点：我有个买卖想和你谈。
+
+齐霜恶意的谩骂声喷上茭白还没完全拿开的手心：不谈！滚！杂毛土狗！
+
+叫土狗就算了，还他妈是杂毛的，这能忍？茭白抄起被子闷住齐霜的头，冷笑：你猜，要是老太太知道，你根本不是想做她儿媳，而是打的
+
+被子里的齐霜疯了一样蹬腿挥胳膊。
+
+茭白收拢被子，裹紧齐霜，对着他的耳朵位置说出一个人名。
+
+第6章
+
+齐子挚会通过掌握到的信息，理性分析弟弟过敏是巧合，齐霜作为当事人却不会那么想，因为他心虚。大哥不知道他昨晚傻逼逼的亲自开车去缔夜蹲点，想撞死王初秋，他没失忆，清清楚楚记得自己那个时间段的妒恨疯狂。
